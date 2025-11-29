@@ -1,2 +1,1 @@
-# http-quickprofitug.github.io
-Investment Website
+# http-1xbetchickenroad2025.github.io
